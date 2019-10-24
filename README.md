@@ -2,7 +2,7 @@
 
 <h2>务必收藏好本地址才永不迷路</h2>
 
-视频地址：http://www.2048hd.com
+视频地址：https://www.2048hd11.com
 
 视频地址：http://www.2048hd.net
 
