@@ -14,7 +14,7 @@
 
 视频地址：http://www.hd2048.net
 
-采集地址：https://lu123.net
+采集地址：http://2048zy.cc
 
 
 [需要翻墙]telegram电报群：https://t.me/hd2048
